@@ -1,16 +1,15 @@
-## Hi there 👋
+# Hi there! 👋 I'm Efdq9w4zo2nlizabethFreemaj2poatlwin
 
-<!--
-**Efdq9w4zo2nlizabethFreemaj2poatlwin/Efdq9w4zo2nlizabethFreemaj2poatlwin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🛼 🎰 Improving my skills in cybersecurity 🛼 🎰
 
-Here are some ideas to get you started:
+## About Me
+🌍 🎹 🥋 🏏 Building the future with robotics 🌍 🎹 🥋 🏏
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### What I'm Working On
+🛼 🎰 🏑 A beginner in blockchain 🛼 🎰 🏑
+
+### Fun Facts
+🔥 🎯 💡 A nerd in design thinking 🔥 🎯 💡
+
+---
+🏄 🚀 🎳 🎯 🎣 Thanks for visiting my profile! 🏏 🏊 🎮 💻 🏓
